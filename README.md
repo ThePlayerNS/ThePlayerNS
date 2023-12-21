@@ -1,0 +1,5 @@
+- Hi, I’m P3nding.
+- I make music and code. 
+- I’m currently learning : C#
+- I’m looking to collaborate on : Finding Braincells
+- How to reach me : You don't.
